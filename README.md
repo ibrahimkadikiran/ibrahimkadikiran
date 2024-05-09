@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ibrahimkadikiran
-- 👀 I’m interested in Etical hacking , Cyber security, networking, Security Operation center analyst L1 and forensic , incident response
+- 👀 I’m interested in Etical hacking , Cyber security, networking, Security Operation center analyst L1, Threat Detection Engineer and forensic , incident response
 - 🌱 I’m currently learning Etical hacking , Cyber security, networkin, forensic and ıncident response
 - 💞️ I’m looking to collaborate on I’m looking to collaborate on Etical hacking , Cyber security, networking, Security Operation center analyst L1 and forensic , incident response
 - 📫 How to reach me https://tr.linkedin.com/in/ibrahimkadikiran
